@@ -1,0 +1,1 @@
+o curso está sendo desafiador, mas estou gostando muito. Obrigada!
